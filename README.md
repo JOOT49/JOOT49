@@ -1,9 +1,10 @@
 - 👋 Hi, I’m @JOOT49
-~He/Him
-~14
-~I mod video games sometimes (mostly celeste)
-~Mac user (I’m forced to by my parents)
-~DMs Open, please don't be weird!
+- He/Him
+- 14
+- I mod video games sometimes (mostly celeste)
+- Mac user (I’m forced to by my parents)
+
+
 
 <!---
 JOOT49/JOOT49 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
