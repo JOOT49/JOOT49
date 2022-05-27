@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JOOT49
 - He/Him
-- 14
+- 15
 - I mod video games sometimes (mostly celeste)
 - Mac user (I’m forced to by my parents)
 
